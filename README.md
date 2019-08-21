@@ -1,0 +1,2 @@
+# KuroiOmoide
+IDK
